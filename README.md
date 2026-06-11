@@ -13,6 +13,8 @@
 ---
  ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/6ad48ff38d6c0fd142eeac4b0d3154f0b288cd24/fa8ff576ec4ad2a750e98827c58526a1.jpg)
+
 ### *<p align=center>* ꧁♰ꔛ⋅•⋅⊰∙∘☽⊱𝐀𝐛𝐨𝐮𝐭 𝐦𝐞: 𝓷𝓪𝓿𝔂𝓲𝓪⊰☾∘∙⊱⋅•⋅ꔛ♰꧂🪶
 
 <p align=center> -⚜️➤ˎˊ˗⊱іm ᥲᥒ ᥲr𝗍іs𝗍 і ᥣ᥆᥎ᥱ ძrᥲᥕіᥒg, і ᥣ᥆᥎ᥱ ᑲᥱіᥒg ᥴrᥱᥲ𝗍і᥎ᥱ ➤ˎˊ˗і ᥣ᥆᥎ᥱ ᥲᥒіmᥱ ᥱs⍴ᥱᥴіᥲᥣᥣᥡ ȷ᥆ȷ᥆'s ᑲіzᥲrrᥱ ᥲძ᥎ᥱᥒ𝗍ᥙrᥱ ➤ˎˊ˗⊱і ᥣ᥆᥎ᥱ ᥣіs𝗍ᥱᥒіᥒg 𝗍᥆ mᥙsіᥴ і ᥣ᥆᥎ᥱ ȷᥱᥕᥱᥣrᥡ і ᥣ᥆᥎ᥱ sһіᥒᥒᥡ 𝗍hings ➤ˎˊ˗ і ᥣ᥆᥎ᥱ 𝖿ᥲsһі᥆ᥒ ➤ˎˊ˗ і'm ᥆ᑲssᥱsᥱძ ᥕі𝗍һ 𝖿іᥣm࿐
