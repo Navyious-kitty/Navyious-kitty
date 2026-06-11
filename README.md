@@ -1,5 +1,5 @@
-## Hi there 👋
-
+┈➤ ˗ˋˏ𝓝𝓪𝓿𝔂𝓲𝓸𝓾𝓼 𝓴𝓲𝓽𝓽𝔂 𝓱𝓮𝓻𝓮!!ˎˊ˗🪷
+ꔛһᥲіі ᥕᥱᥣᥴ᥆mᥱ 𝗍᥆ mᥡ gі𝗍һᥙᑲ і'm ᥒᥲ́᥎ᥡіᥲ
 <!--
 **Navyious-kitty/Navyious-kitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
