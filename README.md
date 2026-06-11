@@ -1,3 +1,5 @@
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/545c3664546c3094855d062aacc3ebcf9d01ac5c/cooltext509992438080703.png)
+
 ### *<p align=center>* ┈➤ ˗ˋˏ𝓝𝓪𝓿𝔂𝓲𝓸𝓾𝓼 𝓴𝓲𝓽𝓽𝔂 𝓱𝓮𝓻𝓮!!ˎˊ˗🪷
 ---
  ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
