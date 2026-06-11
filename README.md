@@ -26,6 +26,8 @@
 <p align=center> -⚜️➤ˎˊ˗⊱𝐃𝐍𝐈: і𝖿 ᥡ᥆ᥙr ᥲ rᥲᥴіs𝗍, mіs᥆gᥡᥒіs𝗍, ᥲ ⍴ᥱძ᥆⍴һіᥣᥱ ᥆r ᥲ s𝗍ᥙᑲᑲ᥆rᥒ һ᥆m᥆⍴һ᥆ᑲ ᥲᥒძ ᥲ s𝗍ᥙ⍴іძ 𝗍rᥙm⍴ sᥙ⍴⍴᥆r𝗍ᥱr﹏᥆r і𝖿 ᥡ᥆ᥙ sᥱᥱ 𝗍һᥲ𝗍 і'm 𝐀𝐅𝐊 ⊱ᑲᥱ kіᥒძ ᑲᥱ ᥒіᥴᥱ࿐✪
 <p align=center> -⚜️➤ˎˊ˗⊱𝐃𝐍𝐈: і𝖿 ᥡ᥆ᥙr ᥲ ⍴ᥙᥴᥴі᥊ძі᥆ sһі⍴⍴ᥱr࿐˚•ꔛ 𝗍һᥱᥡ ᥲrᥱ ᥣі𝗍ᥱrᥲᥣᥣᥡ ᑲᥱs𝗍іᥱs ★🪷
 
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/15129c26b2cbad539f8e837f36f69c4f9adfecc0/77fbbb917e5c48134aa6f2b0b1813f6c(1).jpg)
+
 ---
 ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
