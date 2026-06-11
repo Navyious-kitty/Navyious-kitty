@@ -36,5 +36,9 @@
 <p align=center> -⚜️➤ˎˊ˗⊱𝐅𝐚𝐧𝐝𝐦𝐬: ȷȷᑲᥲ, sᥱrіᥲᥣ ᥱ᥊⍴ᥱrіmᥱᥒ𝗍s ᥣᥲіᥒ, ძᥱᥲ𝗍һᥒ᥆𝗍ᥱ, ⍴ᥲsᥕg, s᥆ᥙᥣ ᥱᥲ𝗍ᥱr, ᑲᥱrsᥱrk, һ᥊һ, sᥙ, 𝗍ᥲᥕ᥆g, ȷȷk, ᥱᥙ⍴һ᥆rіᥲ, mᥲr᥎ᥱᥣ, ძᥴ, ძᥱm᥆ᥒ sᥣᥲᥡᥱr, 𝖿᥆᥆ᥣᥡ ᥴ᥆᥆ᥣᥡ, ᥲძ᥎ᥱᥒ𝗍ᥙrᥱ 𝗍іmᥱ..ᥲᥒძ s᥆ 𝖿᥆r𝗍һ ꔛіᥣᥣ ᥲძძ m᥆rᥱ і𝖿 і ȷ᥆іᥒ m᥆rᥱ 𝖿ᥲᥒძ᥆ms❦..𐦍༘🌸
  
  ### *<p align=center>* ╰┈➤ˎˊ˗mᥡ kіᥒs: 𝓽𝓲𝔃𝓲𝓪𝓷𝓸(𝗷𝗷𝗯𝗮), 𝓬𝓪𝓼𝓬𝓪(𝗯𝗲𝗿𝘀𝗲𝗿𝗸), 𝓟𝓾𝓬𝓬𝓲(𝗷𝗷𝗯𝗮), 𝓰𝓾𝓷𝓼𝓶𝓲𝓽𝓱 𝓫𝓲𝓽𝓬𝓱(𝗽𝗮𝘀𝘄𝗴), 𝓭𝓸𝓹𝓹𝓲𝓸(𝗷𝗷𝗯𝗮), 𝓰𝓲𝓸𝓻𝓷𝓸(𝗷𝗷𝗯𝗮), 𝓮𝓻𝓶𝓲𝓼(𝗷𝗷𝗯𝗮), 𝓣𝓻𝓲𝓼𝓱 𝓾𝓷𝓪(𝗷𝗷𝗯𝗮), 𝓭𝓲𝓪𝓫𝓸𝓵𝓸(𝗷𝗷𝗯𝗮), 𝓳𝓮𝓼𝓲𝓬𝓪(𝘀𝘂), 𝓰𝓪𝓻𝓷𝓮𝓽(𝘀𝘂),...✯
+
+---
+
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/074ae02f5f1422b6726a796ebaafff6ede5ac3dc/f8f54d5f25e50d2e05cf8ad3c97dccc3.png)
 <!--
 **Navyious-kitty/Navyious-kitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
