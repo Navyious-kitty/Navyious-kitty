@@ -6,7 +6,6 @@
 
 ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/c403c3319fbcd61bd2e846e0143f7f0f890aef67/271ca7d4455f7059ba92c4bfa0f3425f.jpg) 
 ╰┈➤ ˗ˋˏ𝓹𝓾𝓬𝓬𝓲𝓼 𝓯𝓲𝓻𝓼𝓽 𝓫𝓸𝓻𝓷ˎˊ˗ ˚ ༘ ೀ⋆｡˚
-![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/ab80ee2616c811c58202f3f2261cc22d01d3636d/cdb2e8da439544cf8a01fbfc19b20a26.png)
 <!--
 **Navyious-kitty/Navyious-kitty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
