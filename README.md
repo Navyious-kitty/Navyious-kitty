@@ -21,6 +21,8 @@
 ---
  ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/37b46fff05238ee48296a54f6d51e650a356cb94/8b5585c915caa39a0d0cd60a0602fc3c.jpg)
+
 ### *<p align=center>* ꧁ꔛ⋅•⋅⊰∙∘☽⊱𝐃𝐎 𝐍𝐎𝐓 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓 𝐈𝐅⊰☾∘∙⊱⋅•⋅ꔛ꧂🪶
 
 <p align=center> -⚜️➤ˎˊ˗⊱𝐃𝐍𝐈: і𝖿 ᥡ᥆ᥙr ᥲ rᥲᥴіs𝗍, mіs᥆gᥡᥒіs𝗍, ᥲ ⍴ᥱძ᥆⍴һіᥣᥱ ᥆r ᥲ s𝗍ᥙᑲᑲ᥆rᥒ һ᥆m᥆⍴һ᥆ᑲ ᥲᥒძ ᥲ s𝗍ᥙ⍴іძ 𝗍rᥙm⍴ sᥙ⍴⍴᥆r𝗍ᥱr﹏᥆r і𝖿 ᥡ᥆ᥙ sᥱᥱ 𝗍һᥲ𝗍 і'm 𝐀𝐅𝐊 ⊱ᑲᥱ kіᥒძ ᑲᥱ ᥒіᥴᥱ࿐✪
