@@ -2,7 +2,7 @@
 
 ### *<p align=center>* ┈➤ ˗ˋˏ𝓝𝓪𝓿𝔂𝓲𝓸𝓾𝓼 𝓴𝓲𝓽𝓽𝔂 𝓱𝓮𝓻𝓮!!ˎˊ˗🪷
 ---
- ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
+˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
 <p align=center> ꔛһᥲіі ᥕᥱᥣᥴ᥆mᥱ 𝗍᥆ mᥡ gі𝗍һᥙᑲ і'm ᥒᥲ́᥎ᥡіᥲ
 
@@ -14,7 +14,7 @@
 <p align=center> ༺˗ˋˏ𝓲𝓷 𝓵𝓸𝓿𝓲𝓷𝓰 𝓶𝓮𝓶𝓸𝓻𝔂 𝓸𝓯 𝓮𝓷𝓻𝓲𝓬𝓸 𝓹𝓾𝓬𝓬𝓲ˎˊ˗༻
 
 ---
- ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
+˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/6ad48ff38d6c0fd142eeac4b0d3154f0b288cd24/fa8ff576ec4ad2a750e98827c58526a1.jpg)
 
@@ -26,7 +26,7 @@
  ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/cf1d8ae66ba07c9bc355da31b1e9942cabc4a541/images%20(2)(1).png)
 
 ---
- ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
+˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/37b46fff05238ee48296a54f6d51e650a356cb94/8b5585c915caa39a0d0cd60a0602fc3c.jpg)
 
@@ -38,7 +38,7 @@
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/15129c26b2cbad539f8e837f36f69c4f9adfecc0/77fbbb917e5c48134aa6f2b0b1813f6c(1).jpg)
 
 ---
-˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏꧁⊱٭⊰༼♰༽⊱٭⊰꧂﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
+˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/f6e88f89c3e6887fff8a0538ce7fa616d2c293ab/ba47704eec83f1d9706ccbe83c1d96c0.jpg)
 
