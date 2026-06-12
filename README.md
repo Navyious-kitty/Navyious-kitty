@@ -23,7 +23,7 @@
 <p align=center> -⚜️➤ˎˊ˗⊱іm ᥲᥒ ᥲr𝗍іs𝗍 і ᥣ᥆᥎ᥱ ძrᥲᥕіᥒg, і ᥣ᥆᥎ᥱ ᑲᥱіᥒg ᥴrᥱᥲ𝗍і᥎ᥱ ➤ˎˊ˗і ᥣ᥆᥎ᥱ ᥲᥒіmᥱ ᥱs⍴ᥱᥴіᥲᥣᥣᥡ ȷ᥆ȷ᥆'s ᑲіzᥲrrᥱ ᥲძ᥎ᥱᥒ𝗍ᥙrᥱ ➤ˎˊ˗⊱і ᥣ᥆᥎ᥱ ᥣіs𝗍ᥱᥒіᥒg 𝗍᥆ mᥙsіᥴ і ᥣ᥆᥎ᥱ ȷᥱᥕᥱᥣrᥡ і ᥣ᥆᥎ᥱ sһіᥒᥒᥡ 𝗍hings ➤ˎˊ˗ і ᥣ᥆᥎ᥱ 𝖿ᥲsһі᥆ᥒ ➤ˎˊ˗ і'm ᥆ᑲssᥱsᥱძ ᥕі𝗍һ 𝖿іᥣm࿐
 <p align=center> -⚜️➤ˎˊ˗⊱і ᥣ᥆᥎ᥱ ᥱᥒrіᥴ᥆ ⍴ᥙᥴᥴі!!࿐
 
- ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/cf1d8ae66ba07c9bc355da31b1e9942cabc4a541/images%20(2)(1).png)
+ ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/cf1d8ae66ba07c9bc355da31b1e9942cabc4a541/images%20(2)(1).png) ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/d4d3047567cc33282838f24bdbbbcd9d846685a4/degt04f-dc68c9ba-db6c-490c-8eea-6c6ce91eaec0.png)
 
 ---
 ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
