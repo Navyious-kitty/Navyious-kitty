@@ -38,7 +38,7 @@
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/15129c26b2cbad539f8e837f36f69c4f9adfecc0/77fbbb917e5c48134aa6f2b0b1813f6c(1).jpg)
 
 ---
-˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏꧁⊱⊰༼♰༽⊱⊰꧂﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
+˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏꧁⊱٭⊰༼♰༽⊱٭⊰꧂﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/f6e88f89c3e6887fff8a0538ce7fa616d2c293ab/ba47704eec83f1d9706ccbe83c1d96c0.jpg)
 
