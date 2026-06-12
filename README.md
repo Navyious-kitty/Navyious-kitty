@@ -38,6 +38,8 @@
 ---
 ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/f6e88f89c3e6887fff8a0538ce7fa616d2c293ab/ba47704eec83f1d9706ccbe83c1d96c0.jpg)
+
 ### *<p align=center>* ꧁♰ꔛ⋅•⋅⊰∙∘☽⊱𝐅𝐚𝐧𝐝𝐨𝐦𝐬┆𝐅𝐚𝐯𝐨𝐫𝐢𝐭𝐞𝐬𝐡𝐨𝐰𝐬⊰☾∘∙⊱⋅•⋅ꔛ♰꧂🪶
 
 <p align=center> -⚜️➤ˎˊ˗⊱𝐅𝐚𝐧𝐝𝐦𝐬: ȷȷᑲᥲ, sᥱrіᥲᥣ ᥱ᥊⍴ᥱrіmᥱᥒ𝗍s ᥣᥲіᥒ, ძᥱᥲ𝗍һᥒ᥆𝗍ᥱ, ⍴ᥲsᥕg, s᥆ᥙᥣ ᥱᥲ𝗍ᥱr, ᑲᥱrsᥱrk, һ᥊һ, sᥙ, 𝗍ᥲᥕ᥆g, ȷȷk, ᥱᥙ⍴һ᥆rіᥲ, mᥲr᥎ᥱᥣ, ძᥴ, ძᥱm᥆ᥒ sᥣᥲᥡᥱr, 𝖿᥆᥆ᥣᥡ ᥴ᥆᥆ᥣᥡ, ᥲძ᥎ᥱᥒ𝗍ᥙrᥱ 𝗍іmᥱ..ᥲᥒძ s᥆ 𝖿᥆r𝗍һ ꔛіᥣᥣ ᥲძძ m᥆rᥱ і𝖿 і ȷ᥆іᥒ m᥆rᥱ 𝖿ᥲᥒძ᥆ms❦..𐦍༘🌸
