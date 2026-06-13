@@ -25,6 +25,8 @@
 
  ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/cf1d8ae66ba07c9bc355da31b1e9942cabc4a541/images%20(2)(1).png) ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/d4d3047567cc33282838f24bdbbbcd9d846685a4/degt04f-dc68c9ba-db6c-490c-8eea-6c6ce91eaec0.png)
 
+<p align=center> {𝓹.𝓼 𝓽𝓱𝓮𝓼𝓮 𝓯𝓵𝓪𝓰𝓼 𝓪𝓻𝓮𝓷'𝓽 𝓯𝓸𝓻 𝓟𝓾𝓬𝓬𝓲 𝓽𝓱𝓮𝔂 𝓪𝓻𝓮 𝓯𝓸𝓻 𝓶𝓮}
+
 ---
 ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
