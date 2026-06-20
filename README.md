@@ -43,7 +43,7 @@
 ---
 ˗ˋˏˎˊ˗﹏﹏﹏﹏﹏﹏﹏﹏ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ﹏﹏﹏﹏﹏﹏﹏﹏˗ˋˏˎˊ˗
 
-### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/f6e88f89c3e6887fff8a0538ce7fa616d2c293ab/ba47704eec83f1d9706ccbe83c1d96c0.jpg)
+### *<p aling=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/8dbfc174acfefcc045c9900cf184945e339c764c/file_00000000e06071f49dac0b02ddabf402.png)
 
 ### *<p align=center>* ꧁♰ꔛ⋅•⋅⊰∙∘☽⊱𝐅𝐚𝐧𝐝𝐨𝐦𝐬┆𝐅𝐚𝐯𝐨𝐫𝐢𝐭𝐞𝐬𝐡𝐨𝐰𝐬⊰☾∘∙⊱⋅•⋅ꔛ♰꧂🪶
 
