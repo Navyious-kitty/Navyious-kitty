@@ -45,7 +45,7 @@
 
 ### *<p aling=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/8dbfc174acfefcc045c9900cf184945e339c764c/file_00000000e06071f49dac0b02ddabf402.png)
 
-### *<p align=center>* ꧁♰┈╼⋅•⋅⊰∙∘☽⊱𝐅𝐚𝐧𝐝𝐨𝐦𝐬┆𝐅𝐚𝐯𝐨𝐫𝐢𝐭𝐞𝐬𝐡𝐨𝐰𝐬⊰☾∘∙⊱⋅•⋅╾┈♰꧂🪶
+### *<p align=center>* ꧁♰┈⋅•⋅⊰∙∘☽⊱𝐅𝐚𝐧𝐝𝐨𝐦𝐬┆𝐅𝐚𝐯𝐨𝐫𝐢𝐭𝐞𝐬𝐡𝐨𝐰𝐬⊰☾∘∙⊱⋅•⋅┈♰꧂🪶
 
 <p align=center> -⚜️➤ˎˊ˗⊱𝐅𝐚𝐧𝐝𝐦𝐬: ȷȷᑲᥲ, sᥱrіᥲᥣ ᥱ᥊⍴ᥱrіmᥱᥒ𝗍s ᥣᥲіᥒ, ძᥱᥲ𝗍һᥒ᥆𝗍ᥱ, ⍴ᥲsᥕg, s᥆ᥙᥣ ᥱᥲ𝗍ᥱr, ᑲᥱrsᥱrk, һ᥊һ, sᥙ, 𝗍ᥲᥕ᥆g, ȷȷk, ᥱᥙ⍴һ᥆rіᥲ, mᥲr᥎ᥱᥣ, ძᥴ, ძᥱm᥆ᥒ sᥣᥲᥡᥱr, 𝖿᥆᥆ᥣᥡ ᥴ᥆᥆ᥣᥡ, ᥲძ᥎ᥱᥒ𝗍ᥙrᥱ 𝗍іmᥱ..ᥲᥒძ s᥆ 𝖿᥆r𝗍һ ꔛіᥣᥣ ᥲძძ m᥆rᥱ і𝖿 і ȷ᥆іᥒ m᥆rᥱ 𝖿ᥲᥒძ᥆ms❦..𐦍༘🌸
  
