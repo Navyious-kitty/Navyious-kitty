@@ -55,6 +55,11 @@
 
 ˗ˋˏˎˊ˗‿︵﹏﹏ ༘ ೀ⋆｡˚ 𝓸𝓱 𝓪𝓷𝓭 𝓪𝓵𝓼𝓸 𝓘 𝓵𝓸𝓿𝓮 𝓟𝓾𝓬𝓬𝓲 𝓱𝓮𝓱𝓮🪷
 
+### *<p align=center>* ꧁♰┈⋅•⋅⊰∙∘☽⊱𝐅𝐚𝐯𝐨𝐮𝐫𝐢𝐭𝐞 𝐚𝐫𝐭𝐢𝐬𝐭𝐬⊰☾∘∙⊱⋅•⋅┈♰꧂🪶
+
+* ⚜️➤ˎˊ˗⊱𝟏𝒓𝒔𝒕- ᨶ𝓸𝓬𝓽ꫀꪖ𝓾 𝓽᭙ỉ᭢𝓼 & 𝗧𝗩 𝗚𝗜𝗥𝗟
+* ⚜️➤ˎˊ˗⊱𝟐𝒏𝒅- 𝑆𝓽𝓮𝓿𝓮  𝑙𝓪𝓬𝔂    & 𝓣𝓱𝓮  ꪑ𝓪𝓻𝓲𝓪𝓼
+* ⚜️➤ˎˊ˗⊱𝟑𝒓𝒅- 𝐃𝐞𝐚𝐧 𝐛𝐥𝐮𝐧𝐭    & 𝙋𝘼𝙉𝘾𝙃𝙄𝙆𝙊
 ---
  
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/074ae02f5f1422b6726a796ebaafff6ede5ac3dc/f8f54d5f25e50d2e05cf8ad3c97dccc3.png)
