@@ -2,7 +2,9 @@
 
 ### *<p align=center>* ┈➤ ˗ˋˏ𝓝𝓪𝓿𝔂𝓲𝓸𝓾𝓼 𝓴𝓲𝓽𝓽𝔂 𝓱𝓮𝓻𝓮!!ˎˊ˗🪷
 ---
-˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/603445cc80f98077ed5e6c1eea2b0a1c39d19905/Tumblr_l_224027025103506.jpg)
+
+<p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
 
 <p align=center> ꔛһᥲіі ᥕᥱᥣᥴ᥆mᥱ 𝗍᥆ mᥡ gі𝗍һᥙᑲ і'm ᥒᥲ́᥎ᥡіᥲ
 
