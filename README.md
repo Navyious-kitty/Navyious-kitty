@@ -62,7 +62,7 @@
 * ⚜️➤ˎˊ˗⊱𝟑𝒓𝒅- 𝐃𝐞𝐚𝐧 𝐛𝐥𝐮𝐧𝐭    & 𝙋𝘼𝙉𝘾𝙃𝙄𝙆𝙊 & 𝗧𝗛𝗘 𝗥𝗔𝗗𝗜𝗢 𝗗𝗘𝗣𝗧. & 𝗌𝗍𝖾𝗋𝖾𝗈𝗅𝖺𝖻
 ---
 
-![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/541c10955606d5882606ccab00591f95fa711e0c/Tumblr_l_223955505025117.jpg)
+![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/541c10955606d5882606ccab00591f95fa711e0c/Tumblr_l_223955505025117.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_223972796398349.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_223977889264426.gif)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_224139357351205.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_224142058875589.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_224144509525667.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_225049372451644.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_225092280715877.gif)
  
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/074ae02f5f1422b6726a796ebaafff6ede5ac3dc/f8f54d5f25e50d2e05cf8ad3c97dccc3.png)
 
