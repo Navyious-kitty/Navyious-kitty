@@ -1,7 +1,7 @@
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/557cec9f7065ce3cd071699ac3f8ce5476fb14af/cooltext510873275761106.png)
 
 ### *<p align=center>* ┈➤ ˗ˋˏ𝓝𝓪𝓿𝔂𝓲𝓸𝓾𝓼 𝓴𝓲𝓽𝓽𝔂 𝓱𝓮𝓻𝓮!!ˎˊ˗🪷
----
+
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/74f20c45be3f21a068da4117270f3385f3a924f8/Tumblr_l_224027025103506.png)
 
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
@@ -15,7 +15,7 @@
 <p align=center> ╰┈➤ ˗ˋˏ𝓹𝓾𝓬𝓬𝓲𝓼 𝔀𝓲𝓯𝓮ˎˊ˗ ˚ ༘ ೀ⋆｡˚
 <p align=center> ༺˗ˋˏ𝓲𝓷 𝓵𝓸𝓿𝓲𝓷𝓰 𝓶𝓮𝓶𝓸𝓻𝔂 𝓸𝓯 𝓮𝓷𝓻𝓲𝓬𝓸 𝓹𝓾𝓬𝓬𝓲ˎˊ˗༻
 
----
+
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/74f20c45be3f21a068da4117270f3385f3a924f8/Tumblr_l_224027025103506.png)
 
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
@@ -32,7 +32,7 @@
 
 <p align=center> {𝓹.𝓼 𝓽𝓱𝓮𝓼𝓮 𝓯𝓵𝓪𝓰𝓼 𝓪𝓻𝓮𝓷'𝓽 𝓯𝓸𝓻 𝓟𝓾𝓬𝓬𝓲 𝓽𝓱𝓮𝔂 𝓪𝓻𝓮 𝓯𝓸𝓻 𝓶𝓮}💿
 
----
+
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/74f20c45be3f21a068da4117270f3385f3a924f8/Tumblr_l_224027025103506.png)
 
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
@@ -46,7 +46,7 @@
 
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/15129c26b2cbad539f8e837f36f69c4f9adfecc0/77fbbb917e5c48134aa6f2b0b1813f6c(1).jpg)
 
----
+
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/74f20c45be3f21a068da4117270f3385f3a924f8/Tumblr_l_224027025103506.png)
 
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
@@ -59,7 +59,7 @@
  
  <p align=center> ╰┈➤ˎˊ˗mᥡ kіᥒs: 𝓽𝓲𝔃𝓲𝓪𝓷𝓸(𝗷𝗷𝗯𝗮), 𝓬𝓪𝓼𝓬𝓪(𝗯𝗲𝗿𝘀𝗲𝗿𝗸), 𝓟𝓾𝓬𝓬𝓲(𝗷𝗷𝗯𝗮), 𝓰𝓾𝓷𝓼𝓶𝓲𝓽𝓱 𝓫𝓲𝓽𝓬𝓱(𝗽𝗮𝘀𝘄𝗴), 𝓭𝓸𝓹𝓹𝓲𝓸(𝗷𝗷𝗯𝗮), 𝓰𝓲𝓸𝓻𝓷𝓸(𝗷𝗷𝗯𝗮), 𝓮𝓻𝓶𝓲𝓼(𝗷𝗷𝗯𝗮), 𝓣𝓻𝓲𝓼𝓱 𝓾𝓷𝓪(𝗷𝗷𝗯𝗮), 𝓭𝓲𝓪𝓿𝓸𝓵𝓸(𝗷𝗷𝗯𝗮), 𝓳𝓮𝓼𝓼𝓲𝓬𝓪(𝘀𝘂), 𝓰𝓪𝓻𝓷𝓮𝓽(𝘀𝘂), 𝓓𝓪𝓻𝔀𝓲𝓷(𝘁𝗮𝘄𝗼𝗴), 𝓜𝓪𝓻𝓬𝓮𝓵𝓲𝓷𝓮(𝗮𝘁), 𝓐𝓭𝓿𝓸𝓵(𝗷𝗷𝗯𝗮), 𝓬𝓵𝓪𝔀𝓭𝓮𝓪𝓷 𝔀𝓸𝓵𝓯(𝗠𝗛), 𝓡𝓸𝓼𝓮 𝓺𝓾𝓪𝓻𝓽𝔃 (𝘀𝘂),...✯💿
 
----
+
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/74f20c45be3f21a068da4117270f3385f3a924f8/Tumblr_l_224027025103506.png)
 
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏ ༘ ೀ⋆｡˚ 𝓸𝓱 𝓪𝓷𝓭 𝓪𝓵𝓼𝓸 𝓘 𝓵𝓸𝓿𝓮 𝓟𝓾𝓬𝓬𝓲 𝓱𝓮𝓱𝓮🪷
@@ -74,7 +74,7 @@
 
 *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/541c10955606d5882606ccab00591f95fa711e0c/Tumblr_l_223955505025117.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_223972796398349.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_223977889264426.gif)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_224139357351205.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_224142058875589.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_224144509525667.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_225049372451644.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/20de588e8f5f3c40a8b66836ece9ce30af540aa0/Tumblr_l_225092280715877.gif)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/d946624e5428a592e3d9d66f5e94e5e490d2618f/Tumblr_l_225150777843342.gif)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/d946624e5428a592e3d9d66f5e94e5e490d2618f/Tumblr_l_225309480589736.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/d946624e5428a592e3d9d66f5e94e5e490d2618f/Tumblr_l_225026830917796.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/d946624e5428a592e3d9d66f5e94e5e490d2618f/Tumblr_l_224977489234716.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/d946624e5428a592e3d9d66f5e94e5e490d2618f/Tumblr_l_224957670966100.gif)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/b2802731e13b44ed6c506bfb8aa6451be3f7f453/Tumblr_l_224394727909143.gif)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/350d8c249370be3616c19f0358215acdf64c8550/Tumblr_l_257037862996858.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/3c4a2dbdc9701e2cd300b3d659a1d2368ccbaec9/Tumblr_l_257030696560011.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/6c83a6b7aff5c8c25f89a111a3fa83eaf8167789/Tumblr_l_257041640138473.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/e0b54ba0f98bf45556f7895cd82dd0e7126a442d/Tumblr_l_257045989103089.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/eec91968335190b6e95e4d68fa835631792f8d54/Tumblr_l_256977594441470.gif)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/800b409234fd532355c3acbb8479e22330c138da/Puccistamp.png)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/9e74baf9ebd1dc645da59d9a3a84430154282e9a/Tumblr_l_224894299385173.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/240c1c255655dc18b8c38a50abdb95d06ac0965d/Tumblr_l_256819694040537.jpg)![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/c9900052d9e8ac793f5281afdfffe5377ac11942/Tumblr_l_256823683869537.jpg)
 
----
+
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/74f20c45be3f21a068da4117270f3385f3a924f8/Tumblr_l_224027025103506.png)
 
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/074ae02f5f1422b6726a796ebaafff6ede5ac3dc/f8f54d5f25e50d2e05cf8ad3c97dccc3.png)
