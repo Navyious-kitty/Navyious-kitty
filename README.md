@@ -1,4 +1,4 @@
-### *<.p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/557cec9f7065ce3cd071699ac3f8ce5476fb14af/cooltext510873275761106.png)
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/557cec9f7065ce3cd071699ac3f8ce5476fb14af/cooltext510873275761106.png)
 
 ### *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/8076b2f5551f72647e3a1e0d89b0c021292af8f2/Tumblr_l_224027025103506%20(1).png)
 
