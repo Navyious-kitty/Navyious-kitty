@@ -17,6 +17,7 @@
 <p align=center> ╰┈➤ ˗ˋˏ𝓹𝓾𝓬𝓬𝓲𝓼 𝔀𝓲𝓯𝓮ˎˊ˗ ˚ ༘ ೀ⋆｡˚
 <p align=center> ༺˗ˋˏ𝓲𝓷 𝓵𝓸𝓿𝓲𝓷𝓰 𝓶𝓮𝓶𝓸𝓻𝔂 𝓸𝓯 𝓮𝓷𝓻𝓲𝓬𝓸 𝓹𝓾𝓬𝓬𝓲ˎˊ˗༻
 
+ ### *<p align=center >* <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Allura&pause=1000&color=FE69A3&multiline=true&width=435&height=97&lines=%E2%9D%9DDo+you+believe+in+gravitational+forces+between+humans%3F;That+certain+people+attract+certain+others%3F+I+believe+this%2C+now%E2%9D%9E;-Enrico+pucci%F0%93%82%83%E0%B7%86%CB%9A%F0%90%A6%8D%E0%BC%98" alt="Typing SVG" /></a>
 ---
 
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
