@@ -10,7 +10,7 @@
 
 <p align=center> ꔛһᥲіі ᥕᥱᥣᥴ᥆mᥱ 𝗍᥆ mᥡ gі𝗍һᥙᑲ і'm ᥒᥲ́᥎ᥡіᥲ
 
-### *<p align=center>* 🪷꧁♰┈╼⋅•⋅⊰∙∘☽⊱𝓟𝓾𝓬𝓬𝓲𝓼 𝓯𝓲𝓻𝓼𝓽 𝓫𝓸𝓻𝓷⊰☾∘∙⊱⋅•⋅╾┈♰꧂🪷
+### *<p align=center>* 🪷꧁♰┈╼⋅•⋅⊰∙∘☽⊱𝓟𝓾𝓬𝓬𝓲𝓼 𝓵𝓸𝓿𝓮𝓻⊰☾∘∙⊱⋅•⋅╾┈♰꧂🪷
 
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/cc80001f2409e40c8ce7a2cabe317a3580046055/file_000000009f2871f4bbfe46bd957bd62b(1).png) 
 
