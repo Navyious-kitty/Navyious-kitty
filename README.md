@@ -22,7 +22,7 @@
 
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
 
-### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/8e48c7352b78523c575d4e0337c6dd27c15505ab/file_0000000069fc7243b66f2031c2697748.png)
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/f45707d43ab6cf29fc6b4571b33bddec3bed77f6/Untitled24_20260823142114.png)
 
 ### *<p align=center>* ꧁♰┈╼⋅•⋅⊰∙∘☽⊱𝐀𝐛𝐨𝐮𝐭 𝐦𝐞: 𝓷𝓪𝓿𝔂𝓲𝓪⊰☾∘∙⊱⋅•⋅╾┈♰꧂🪶
 *<p align=center>*           ┆іᥒ𝗍ᥱrᥱs𝗍s:  
