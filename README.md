@@ -12,7 +12,7 @@
 
 ### *<p align=center>* 🪷꧁♰┈╼⋅•⋅⊰∙∘☽⊱𝓟𝓾𝓬𝓬𝓲𝓼 𝓵𝓸𝓿𝓮𝓻⊰☾∘∙⊱⋅•⋅╾┈♰꧂🪷
 
-### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/cc80001f2409e40c8ce7a2cabe317a3580046055/file_000000009f2871f4bbfe46bd957bd62b(1).png) 
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/fbf6850b848cde1c354ac2464b9ade615cd49638/Untitled14_20260823070853.png) 
 
 <p align=center> ╰┈➤ ˗ˋˏ𝓹𝓾𝓬𝓬𝓲𝓼 𝔀𝓲𝓯𝓮ˎˊ˗ ˚ ༘ ೀ⋆｡˚
 <p align=center> ༺˗ˋˏ𝓲𝓷 𝓵𝓸𝓿𝓲𝓷𝓰 𝓶𝓮𝓶𝓸𝓻𝔂 𝓸𝓯 𝓮𝓷𝓻𝓲𝓬𝓸 𝓹𝓾𝓬𝓬𝓲ˎˊ˗༻
