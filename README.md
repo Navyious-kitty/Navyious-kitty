@@ -37,6 +37,8 @@
 
 ---
 
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/ee5cc8df0e5dc6f29871066935ef0aa670b77d94/Untitled27_20260823200736__fliter--spring-grass__channel--all__mode--normal.png)
+
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
 
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/646fa7c2895c17128165ba1c6a6d459ef1392c4f/file_0000000053e87246a769977c8da43bd2.png)
