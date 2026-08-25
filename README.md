@@ -73,10 +73,9 @@
 * ⚜️➤ˎˊ˗⊱𝟑𝒓𝒅- 𝐃𝐞𝐚𝐧 𝐛𝐥𝐮𝐧𝐭    & 𝙋𝘼𝙉𝘾𝙃𝙄𝙆𝙊 & 𝗧𝗛𝗘 𝗥𝗔𝗗𝗜𝗢 𝗗𝗘𝗣𝗧. & 𝗌𝗍𝖾𝗋𝖾𝗈𝗅𝖺𝖻
 * ⚜️➤ˎˊ˗⊱𝟒𝒕𝒉- 𝗦𝗢𝗣𝗛𝗜𝗘      & 𝖭𝗂𝗇𝖾 𝗏𝗂𝖼𝗂𝗈𝗎𝗌 & 𝖯𝖠𝖲𝖳 𝖳𝖨𝖬𝖤 & 𝗉𝗋𝗈𝗍𝖾𝖼𝗍
 
-|------------
-| ! [image alt](
-|
-|
+<p align="center">
+<kbd> <img src="https://github.com/Navyious-kitty/Navyious-kitty/blob/c09514254a67c8743dff225e906e26587d51a062/Untitled38_20260825231853.png" alt="i am cocteau twins" width="400"> </kbd> </p>
+
 ---
 
 ### *<p align=center>* <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Allura&pause=1000&color=FE69A3&multiline=true&repeat=false&width=435&height=130&lines=%E2%9D%9DThe+reason+why+people+fail%F0%93%82%83%E0%B7%86%CB%9A;Is+due+to+the+feeling+of+'shame'.+They+think+they+could+have;done+things+differently+in+the+past...;because+of+their+regrets+they+slowly+become+weak.%E2%9D%9E;-Enrico+pucci%CB%9A+%E0%BC%98+%E0%B3%80%E2%8B%86%EF%BD%A1%CB%9A" alt="Typing SVG" /></a>
