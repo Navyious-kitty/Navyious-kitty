@@ -74,7 +74,7 @@
 
 ### *<p align=center>* <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Allura&pause=1000&color=FE69A3&multiline=true&repeat=false&width=435&height=130&lines=%E2%9D%9DThe+reason+why+people+fail%F0%93%82%83%E0%B7%86%CB%9A;Is+due+to+the+feeling+of+'shame'.+They+think+they+could+have;done+things+differently+in+the+past...;because+of+their+regrets+they+slowly+become+weak.%E2%9D%9E;-Enrico+pucci%CB%9A+%E0%BC%98+%E0%B3%80%E2%8B%86%EF%BD%A1%CB%9A" alt="Typing SVG" /></a>
 
-### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/074ae02f5f1422b6726a796ebaafff6ede5ac3dc/f8f54d5f25e50d2e05cf8ad3c97dccc3.png)
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/ace2fdf6ef94072c8f0cbf33b65f7ece83969d8f/Untitled34_20260825190744.png)
 
 <p align=center> -⚜️➤ˎˊ˗⊱(𝓲𝓯 𝓘'𝓶 𝓪𝓯𝓴 𝓘'𝓶 𝓹𝓻𝓸𝓫𝓪𝓫𝓵𝔂 𝓭𝓻𝓪𝔀𝓲𝓷𝓰 𝓼𝓸 𝓶𝔂 𝓪𝓹𝓸𝓵𝓸𝓰𝓲𝔃𝓮 𝓲𝓯 𝓘 𝓶𝓲𝓼𝓼𝓮𝓭 𝔂𝓸𝓾𝓻 𝔀𝓱𝓲𝓼𝓹𝓮𝓻🪶)💿... 𝓫𝓾𝓽 𝓪𝓷𝔂𝔀𝓪𝔂 𝓽𝓸 𝓫𝓮 𝓬𝓸𝓷𝓽𝓲𝓷𝓾𝓮𝓭... 
 
