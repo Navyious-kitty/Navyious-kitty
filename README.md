@@ -81,6 +81,6 @@
 
       **𝗽𝘀.𝓹𝓾𝓬𝓬𝓲 𝓲𝓼 𝓷𝓸𝓽 𝔀𝓱𝓲𝓽𝓮 𝔂𝓪 𝔀𝓮𝓲𝓻𝓭𝓸𝓼🪷**
 
-### *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/52a17b7b4ccb7bc6d6a8c9fcfb0e8d93d6f86aad/Untitled30_20260825191339.png)
+### *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/edc1d2801c64a6dfcf5da217c6ebc15b45b93e6c/Untitled30_20260825204259.png) 
 
 ## *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/902c328c7e54e2244630d4c0f6be6a2457d5078a/Tumblr_l_224027025103506%20(1)(1).png)
