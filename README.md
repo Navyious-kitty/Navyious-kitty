@@ -80,4 +80,8 @@
 
       **𝗽𝘀.𝓹𝓾𝓬𝓬𝓲 𝓲𝓼 𝓷𝓸𝓽 𝔀𝓱𝓲𝓽𝓮 𝔂𝓪 𝔀𝓮𝓲𝓻𝓭𝓸𝓼🪷**
 
-### *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/ceaa80dffca2b61febfff5c6be339601e01b8eb8/Tumblr_l_224027025103506%20(1)(1).png)
+### *<p align=center >* ![image alt](
+
+### *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/52a17b7b4ccb7bc6d6a8c9fcfb0e8d93d6f86aad/Untitled30_20260825191339.png)
+
+kitty/blob/ceaa80dffca2b61febfff5c6be339601e01b8eb8/Tumblr_l_224027025103506%20(1)(1).png)
