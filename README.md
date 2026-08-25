@@ -1,4 +1,3 @@
-    PLEASE DO NOT COPY MY LAY OUT NO MY COLOURS 
 
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/557cec9f7065ce3cd071699ac3f8ce5476fb14af/cooltext510873275761106.png)
 
