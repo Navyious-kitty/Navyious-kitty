@@ -3,7 +3,7 @@
 
 ### *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/8076b2f5551f72647e3a1e0d89b0c021292af8f2/Tumblr_l_224027025103506%20(1).png)
 
-### *<p align=center>* ┈➤ ˗ˋˏ𝓝𝓪𝓿𝔂𝓲𝓸𝓾𝓼 𝓴𝓲𝓽𝓽𝔂 𝓱𝓮𝓻𝓮!!ˎˊ˗🪷
+### *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/6ee5f39f7176d1608fd70104a3b3a699495222a2/Untitled47_20260827215330.png) 
 
 ---
 
