@@ -1,7 +1,7 @@
 
 ### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/557cec9f7065ce3cd071699ac3f8ce5476fb14af/cooltext510873275761106.png)
 
-### *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/2a07306847e4ca390c8753af663e345e8eff262b/Untitled51_20260827235122.png)
+### *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/86501e3fca5c04e4a215f297e3a6fa73a4a2d9d3/Untitled51_20260827235743.png)
 
 ### *<p align=center>* ┈➤ ˗ˋˏ𝓝𝓪𝓿𝔂𝓲𝓸𝓾𝓼 𝓴𝓲𝓽𝓽𝔂 𝓱𝓮𝓻𝓮!!ˎˊ˗🪷
 ---
@@ -90,4 +90,4 @@
 
 ### *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/edc1d2801c64a6dfcf5da217c6ebc15b45b93e6c/Untitled30_20260825204259.png) 
 
-## *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/2a07306847e4ca390c8753af663e345e8eff262b/Untitled51_20260827235122.png)
+## *<p align=center >* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/86501e3fca5c04e4a215f297e3a6fa73a4a2d9d3/Untitled51_20260827235743.png)
