@@ -62,7 +62,7 @@
 
 ---
 
-### *<p aling=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/e46f9dc6e28599c867f4c6900b6f2477b3667a48/Tumblr_l_93861328665440.jpg) 
+### *<p aling=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/cb72c0b7af5861fd49e504e500df97e34ca42d06/Untitled43_20260827201035.png) 
 
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏ ༘ ೀೀ⋆｡˚𝓘 𝓯𝓻𝓮𝓪𝓴𝓲𝓷𝓰 𝓵𝓸𝓿𝓮 𝓟𝓾𝓬𝓬𝓲 𝓱𝓮𝓱𝓮🪷
 
