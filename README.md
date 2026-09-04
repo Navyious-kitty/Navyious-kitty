@@ -22,7 +22,7 @@
 
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
 
-### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/f45707d43ab6cf29fc6b4571b33bddec3bed77f6/Untitled24_20260823142114.png)
+### *<p align=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/be611e6556156b3df0c9de300344461a5bc812c3/Untitled24_20260904193428.png) 
 
 ### *<p align=center>* ꧁♰┈╼⋅•⋅⊰∙∘☽⊱𝐀𝐛𝐨𝐮𝐭 𝐦𝐞: 𝓷𝓪𝓿𝔂𝓲𝓪⊰☾∘∙⊱⋅•⋅╾┈♰꧂🪶
 *<p align=center>*           ┆іᥒ𝗍ᥱrᥱs𝗍s:  
@@ -50,8 +50,6 @@
  ---
 
 <p align=center> ˗ˋˏˎˊ˗‿︵﹏﹏﹏﹏︵‿ꔛ꧁⊱٭⊰༼♰༽⊱٭⊰꧂ꔛ‿︵﹏﹏﹏﹏︵‿˗ˋˏˎˊ˗
-
-### *<p aling=center>* ![image alt](https://github.com/Navyious-kitty/Navyious-kitty/blob/8dbfc174acfefcc045c9900cf184945e339c764c/file_00000000e06071f49dac0b02ddabf402.png)
 
 ### *<p align=center>* ꧁♰┈•⋅⊰∙∘☽⊱𝐅𝐚𝐧𝐝𝐨𝐦𝐬┆𝐅𝐚𝐯𝐨𝐫𝐢𝐭𝐞𝐬𝐡𝐨𝐰𝐬⊰☾∘∙⊱⋅•┈♰꧂🪶
 
