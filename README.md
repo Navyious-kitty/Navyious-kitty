@@ -74,7 +74,10 @@
 <kbd> <img src="https://github.com/Navyious-kitty/Navyious-kitty/blob/c09514254a67c8743dff225e906e26587d51a062/Untitled38_20260825231853.png" alt="i am cocteau twins" width="400"> </kbd> </p>
 
 <p align="center">
-<kbd> <img src="https://github.com/Navyious-kitty/Navyious-kitty/blob/84f3df67e1a482e00a30e874b3ed14c4554bc879/Untitled38_20260827013937.png" alt="i am cocteau twins" width="400"> </kbd> </p>
+<kbd> <img src="https://github.com/Navyious-kitty/Navyious-kitty/blob/84f3df67e1a482e00a30e874b3ed14c4554bc879/Untitled38_20260827013937.png" alt="i am the radio department" width="400"> </kbd> </p>
+
+<p align="center">
+<kbd> <img src="https://github.com/Navyious-kitty/Navyious-kitty/blob/42f609feaea35a86c481dfc648980f88af919cd0/Untitled38_20261105070421.png" alt="i am drop nineteens" width="400"> </kbd> </p>
 
 ---
 
